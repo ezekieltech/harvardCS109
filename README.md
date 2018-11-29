@@ -11,5 +11,7 @@ Lectures, Notes, Practice and Projects
 </ul>
 </p>
 
-<h2>For Questions or Enquiries, send me a mail at:</h2>
+<h2>For suggestions, questions or enquiries, send me a mail at:</h2>
 <p>ezekielobhafuoso [@] gmail [dot] com </p>
+<p> I'd be delighted to hear from you </p>
+<p><i>Gracias</i></p>
